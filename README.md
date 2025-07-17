@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **likhithagsetty@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1qdtMBXHrVTikyMpDnDfZ3QS5Ix9M_j_u/view?usp=sharing](https://drive.google.com/file/d/1qdtMBXHrVTikyMpDnDfZ3QS5Ix9M_j_u/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1bOQ5LhPWBo2qKeRGcxV_eoyWRj5Ew4yn/view?usp=drive_link ](https://drive.google.com/file/d/1bOQ5LhPWBo2qKeRGcxV_eoyWRj5Ew4yn/view?usp=drive_link )
 
 - ⚡ Fun fact **I like people who are funny.**
 
