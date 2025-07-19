@@ -5,7 +5,7 @@
 
 - 🌱 I’m currently learning **React.js and Backend Technologies**
 
-- 👨‍💻 All of my projects are available at [[https://likhitha1424.github.io/Likhitha-Portfolio/]]([https://likhitha1424.github.io/Likhitha-Portfolio/])
+- 👨‍💻 All of my projects are available at [[https://likhitha1424.github.io/Likhitha-Portfolio/]](https://likhitha1424.github.io/Likhitha-Portfolio/)
 
 - 📫 How to reach me **likhithagsetty@gmail.com**
 
